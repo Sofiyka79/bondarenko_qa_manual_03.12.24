@@ -1,0 +1,1 @@
+# bondarenko_qa_manual_03.12.24
